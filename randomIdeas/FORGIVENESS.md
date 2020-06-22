@@ -24,6 +24,7 @@ I'm sure I've left a lot off! I just can't think of any others off the top of my
 As memories come to me, I will likely add to this list.
 
 If I have done you wrong in the past, please, I beg your forgiveness.
+
 If I offend you sometime in the future, please, I beg your forgiveness.
 
 
