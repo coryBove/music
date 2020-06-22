@@ -1,4 +1,9 @@
-[Influences](randomIdeas/INFLUENCES.md)
-[Forgiveness](randomIdeas/FORGIVENESS.md)
-[History](randomIdeas/HISTORY.md)
-[Love](randomIdeas/LOVE.md)
+[Influences](INFLUENCES.md)
+
+[Forgiveness](FORGIVENESS.md)
+
+[History](HISTORY.md)
+
+[Love](LOVE.md)
+
+[Anxiety](Anxiety.md)
