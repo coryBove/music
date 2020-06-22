@@ -121,11 +121,11 @@ Love you Dad, I want to make you proud!!!
 
 ### emergency responders / healthcare workers
 
-Last, but certainly not least, I can't thank the first-responders from my past enough. Between Cleveland (Cleveland State University), Athens (Ohio University), everyone in the Summit County area, North East Ohio, Ohio, USA, World, etc.
+Last, but certainly not least, I can't thank the first-responders from my past enough. Between Cleveland (Cleveland State University), Athens (Ohio University), Cuyahoga Falls, everyone in the Summit County area, North East Ohio, Ohio, USA, World, etc.
 
 Of course there's no way I could possibly interact directly with all of these people, but if it weren't for them, I would not be here today.
 
-Ya'll are truly [Angels](ANGELS.md).
+Ya'll are truly [Angels](/ANGELS.md).
 
 Best wishes,
 
