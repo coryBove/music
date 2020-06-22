@@ -109,5 +109,24 @@ A professor from college I won't mention by name. This man is a wizard on the ke
 
 Any true master of the craft (and there are many not listed). When you see it in their writing and in their code, it's impossible to ignore their passion. If I can hone my skills to be even 10% of what these people are capable of, I'd be ecstatic.
 
+### family
+
+First and foremost, my Father has had more influence on me than anyone in this endeavor, and he doesn't even know, because he is no longer with us.
+
+Like many people today, he wasn't crazy about his job. Unfortunately, I don't know too much about what he did on site as a machinist. He would talk at length about issues he had at work, and how badly he wanted to retire.
+
+My Dad's true passion lied in caring for and being there for his family.
+
+Love you Dad, I want to make you proud!!!
+
+### emergency responders / healthcare workers
+
+Last, but certainly not least, I can't thank the first-responders from my past enough. Between Cleveland (Cleveland State University), Athens (Ohio University), everyone in the Summit County area, North East Ohio, Ohio, USA, World, etc.
+
+Of course there's no way I could possibly interact directly with all of these people, but if it weren't for them, I would not be here today.
+
+Ya'll are truly [Angels](ANGELS.md).
+
+Best wishes,
 
 -cb
