@@ -6,4 +6,4 @@
 
 [Love](LOVE.md)
 
-[Anxiety](Anxiety.md)
+[Anxiety](ANXIETY.md)

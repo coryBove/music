@@ -1,3 +1,3 @@
-[song](lyrics/song.md)
+[song](song.md)
 
-[coach](lyrics/coach.md)
+[coach](coach.md)
