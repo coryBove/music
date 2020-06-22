@@ -11,7 +11,7 @@ I attended the public school system here, and was a slightly-above-average lazy 
 
 In 2008, I graduated High School, went to Cleveland State University, and subsequently had a mental breakdown a few months into the first semester.
 
-In 2010, I began attending Ohio University, with the original intention of studying music therapy. I didn't get far. I switched the Plant Biology, made some awesome friends in the Tae Kwon Do club, regularly went to Jackie O's brewery for freshly brewed beers/lunch, and subsequently had a mental breakdown in March of 2011.
+In 2010, I began attending Ohio University, with the original intention of studying music therapy. I didn't get far. I switched to Plant Biology, made some awesome friends in the Tae Kwon Do club, regularly went to Jackie O's brewery for freshly brewed beers/lunch, and subsequently had a mental breakdown in March of 2011.
 
 It was in March 2011 that I was diagnosed with Chronic Undifferentiated Schizophrenia. That diagnosis was later changed to Paranoid Schizophrenia. Mental health disorders are notoriously hard to categorize, so the proper label for my issue is unimportant. Just know - I have a mental illness.
 
@@ -27,9 +27,9 @@ I've been playing guitar since I was 15, when my Dad got my first guitar for Chr
 
 My Dad passed away March 29th, 2017. I love and miss him dearly, but without this happening I would not be the person I am today. He left my sister and I his retirement savings from working 5, 10 hour days, and 8 on most Saturdays as a Brake Press Operator his whole life. He was the hardest worker I have ever known, and I want to emulate that behavior as best I can.
 
-When my Dad passed, my reflections on really life began. What does it all mean? What am I doing with myself? How should I spend my free time? After much deliberation on these topics, I decided I might as well stick with music as my 'full time hobby' outside of work. I had always played guitar, but I never pursued it seriously until I conciously made this decision.
+When my Dad passed, my reflections on life really began. What does it all mean? What am I doing with myself? How should I spend my free time? After much deliberation on these topics, I decided I might as well stick with music as my 'full time hobby' outside of work. I had always played guitar, but I never pursued it seriously until I conciously made this decision.
 
-Since then, I've been hard at working practicing, taking lessons from some great teachers, playing as much as I can get my hands on it, etc. I absolutely love it. A comment on a YouTube jam track read 'This is meditation.' It truly is! I want to share my love of music with the world, and share with people how it has helped me through tough times.
+Since then, I've been hard at work practicing, taking lessons from some great teachers, playing as much as I can get my hands on it, etc. I absolutely love it. A comment on a YouTube jam track read 'This is meditation.' It truly is! I want to share my love of music with the world, and share with people how it has helped me through tough times.
 
 My father's retirement savings is my last-ditch safety net. From working a job that pays typically higher than most others, and living somewhat frugally, I've been able to add a cushion to that safety net, and I'm ready to try this out.
 
