@@ -6,11 +6,15 @@ Late Elementary/Early Middle - We were having an epic 'rock battle'. You and I w
 
 Middle School - I punched you in the nose at a party. I was afraid of you and your friends, I ran and hid in the bathroom and cried. Worse, I am haunted by the feeling of my hand connecting with your face. I'm sorry.
 
-Middle School - The boys and I gave you a hard time when you fell and hurt your face/mouth. I'm sorry.
+Middle School - The boys and I gave you a hard time when you fell and hurt your face/mouth. You sat with us at lunch. I'm sorry.
 
-Middle School - You stood up in front of all of us. You told us why you needed to leave. During my time in school, I don't remember a stronger show of bravery. Personally, I don't remember doing anything to you that needs forgiving, but I'm still sorry. We were kids, but we still should have known better.
+Middle School - You stood up in front of all of us. You told us why you needed to leave. During my time in school, I don't remember a stronger show of bravery. You sat near us at lunch sometimes, and you brought in some really cool toys to share. We probably gave you a hard time. Personally, I don't remember doing anything in particular to you that needs forgiving, but I'm still sorry. We were kids, but we still should have known better.
 
-High School - Open hand on the cheek. It was a dumb spat, I don't even remember what we were arguing about. You hit back! I threw your shoe! I'm almost certain someone else out there remembers this, too. They would love nothing more than to slap me with their shoe (which I have reason to believe is rather large!!!!) I'm so... so sorry, to both of you. (Also, please don't shoe-slap me)
+Middle School - You also sat with us at lunch sometimes. You stayed with us in a hotel in an out of state trip. You melted the oreos. Last we spoke, you were working in healthcare. Good on you! I know sometimes we gave you a hard time. I'm sorry.
+
+High School - Open hand on the cheek. It was a dumb spat, I don't even remember what we were arguing about. You hit back! I threw your shoe! I'm almost certain someone else out there remembers this, too. They would love nothing more than to slap me with their shoe (which I have reason to believe is rather large!!!!) I'm so... so sorry, to both of you. (Also, please don't shoe-slap me!)
+
+High School - I helped you with Math homework a few times during our lunch hour. I made an off-hand comment about how I thought your style of clothes were a bit strange. I may or may not have said the word 'dumb', as in 'dumb clothes' or something like that. You stopped asking for help on Math. Little did I know, your style was so incredible and unique, you were featured in a teen fashion magazine (before I said that). I'm really, really sorry.
 
 To everyone who has told me their name, which I then promptly forgot. You MUST know I'm really bad with names. I want to work on it! Sorry!!!
 
