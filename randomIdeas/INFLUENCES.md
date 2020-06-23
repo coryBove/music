@@ -37,6 +37,8 @@ Samantha Fish (Let's have some fun!!!)
 
 Ben Folds (Live/Five - Keep rocking those suburbs!!!)
 
+Tedeschi Trucks Band - Husband/Wife duo. Keep living the dream!
+
 I'd be remiss to forget others like:
 
 The Beatles (Dad's favorite),
@@ -86,6 +88,11 @@ Country -
 
 Johnny Cash (I don't listen to Country a whole lot, but I'm sure many of you have heard his cover of Nine Inch Nails' 'Hurt'. This cover released as part of a 5?6? disc set before he passed, American Man, which are just stunning.)
 
+Not otherwise classifiable -
+
+Khruangbin - SUPER chillax, mostly instrumental
+
+Too Many Zooz - INCREDIBLE horn section, a unique rythm section, and style unmatched by many.
 
 ### software
 
@@ -101,13 +108,15 @@ Ray Kurzweil,
 
 Bill Gates,
 
+Linus Torvalds,
+
 Salman Khan,
 
 Demis Hassabis,
 
-A professor from college I won't mention by name. This man is a wizard on the keyboard, and has made substantial contributions to the C++ community. He worked directly under Bjarne, and I worked directly under him (as a student) for a very short stint. He's a hardass, but the best mentors always are.
+A professor from college I won't mention by name. This man is a wizard on the keyboard, and has made substantial contributions to the C++ community. He worked directly under Bjarne, and I worked directly under him (as a student) for a very short stint. He's a hardass, but the best mentors always are (see Linus).
 
-Any true master of the craft (and there are many not listed). When you see it in their writing and in their code, it's impossible to ignore their passion. If I can hone my skills to be even 10% of what these people are capable of, I'd be ecstatic.
+Any true master of the craft (and there are many not listed). When you see it in their writing, in their code, and in their work, it's impossible to ignore their passion. If I can hone my skills to be even 10% of what these people are capable of, I'd be ecstatic.
 
 ### family
 
@@ -130,6 +139,8 @@ I will be adding to this.
 
 My closest, expansive group of friends. You really mean the world to me.
 I will be adding to this.
+
+To all of the people who have had the patience to listen to me jam and practice. To everyone who I have had the pleasure of jamming with, and to everyone who has had the patience to to hear the same question I ask everyone: "Wanna jam!?"
 
 ### emergency responders / healthcare workers
 
