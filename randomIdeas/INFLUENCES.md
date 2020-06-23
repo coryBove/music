@@ -119,11 +119,25 @@ My Dad's true passion lied in caring for and being there for his family.
 
 Love you Dad, I want to make you proud!!!
 
+My Mother. You've been with me through thick and thin. In and out of hospital stays (even during your endeavors through Law School!) and throughout my whole life you've shown me nothing but support.
+I will be adding to this.
+
+My sister, and her lovely growing family. I love you dearly, even though you're so far away.
+I will be adding to this.
+
+My extended relatives, on both sides of my family. I love you all so, so very much!
+I will be adding to this.
+
+My closest, expansive group of friends. You really mean the world to me.
+I will be adding to this.
+
 ### emergency responders / healthcare workers
 
 Last, but certainly not least, I can't thank the first-responders from my past enough. Between Cleveland (Cleveland State University), Athens (Ohio University), Cuyahoga Falls, everyone in the Summit County area, North East Ohio, Ohio, USA, World, etc.
 
 Of course there's no way I could possibly interact directly with all of these people, but if it weren't for them, I would not be here today.
+
+This does not stop at the ER or hopsitals. This is for EVERY employee involved in healthcare in any way shape or form. From the nurses, doctors, all the way down to kitchen staff and janitorial services. Everyone involed in the distribution of medical supplies (You know who you are, Brother!), front desk services, dentists, therapists. EVERYONE!
 
 Ya'll are truly [Angels](/ANGELS.md).
 
