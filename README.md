@@ -1,5 +1,7 @@
 # music
 
+(If viewing on a mobile device, click 'View All of README.md' at the bottom of this box for the full text)
+
 ## I AM NOT A MEDICAL PROFESSIONAL. THIS PROJECT IS NOT INTENDED TO PROVIDE MEDICAL ADVICE OR OTHERWISE. IT IS AN INQUIRY INTO MY OWN PERSONAL MIND. IF YOU NEED MEDICAL ATTENTION, PLEASE SEEK A PROFESSIONAL!!!
 
 ### Hello! Welcome!
