@@ -12,4 +12,4 @@ When I started this drill last week, I couldn't play the pattern even 1 time thr
 
 https://drive.google.com/file/d/14AIwxCUSyOjLFjFgAAHU8HpyYUrVMjo_/view?usp=sharing
 
-(15m - audio only)
+(15m - audio only - Patterns begin around 2m in)
