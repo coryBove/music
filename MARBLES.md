@@ -13,6 +13,8 @@ Also Thursday - I reach out to a local martial arts instructor (not TKD). In col
 
 Late Thursday Night - Over the last few nights, I had a lot of trouble getting sufficient sleep. If you're a mental health expert, you probably have some insight into why this was happening. Personally, I think all of the excitement did me in. I started feeling really 'trippy' after everyone else went to bed. I woke up my roommate, who then called my mother. At my request, we called an ambulance, and I was sent to the ER for a pysch evaluation eary Friday (19th) morning, and diagnosed with 'Acute Mania/Psychosis'.
 
+When people think 'Manic', they might think 'Manic depressive'. I was the opposite of what you would consider depressed. I was completely on top of the world and feeling great. TOO great. This feeling built up slowly over time until I realized it was too late.
+
 Sunday, 6/21/2020 I was released to my mother, and returned to my own home.
 
 From the police who arrived on scene first, to the EMS crew who arrived second, to the ER docs/nurses who recieved me, and the 'Unit for Oberservation' folks who took care of me after the ER visit, THANK YOU THANK YOU THANK YOU THANK YOU!!!!!!
