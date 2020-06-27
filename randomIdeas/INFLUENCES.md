@@ -92,7 +92,7 @@ Not otherwise classifiable -
 
 Khruangbin - SUPER chillax, mostly instrumental
 
-Too Many Zooz - INCREDIBLE horn section, a unique rythm section, and style unmatched by many.
+Too Many Zooz - INCREDIBLE horn section, a unique rythm section, and style unmatched by any.
 
 ### software
 
@@ -140,7 +140,7 @@ I will be adding to this.
 My closest, expansive group of friends. You really mean the world to me.
 I will be adding to this.
 
-To all of the people who have had the patience to listen to me jam and practice. To everyone who I have had the pleasure of jamming with, and to everyone who has had the patience to to hear the same question I ask everyone: "Wanna jam!?"
+To all of the people who have had the patience to listen to me jam and practice. To everyone who I have had the pleasure of jamming with, and to everyone who has had the patience to hear the same question I ask everyone: "Wanna jam!?"
 
 ### emergency responders / healthcare workers
 

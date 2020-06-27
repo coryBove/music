@@ -1,10 +1,7 @@
-If this project does end up raising any money, I plan to donate MOST of it to Mental Health research, awareness, and outreach.
+I will be looking into sound visualization and recording resources. Ideally these tools will be free and open source.
 
-If you want to support me directly, I will consider sponsorship from the right people. This project will likely need a lot of tender loving care. However, for the time-being, I'm already decently prepared financially, so do consider a different route first.
+I'd love to get some live sound visualization going for some of my recording sessions. If you have any experience in this area, or know anyone who does, please reach out.
 
-In leiu of cash donations, please consider doing your own outreach by sharing this project with loved ones.
-
-
-
+As far as recording, I plan to take a deep dive into Audacity. It is a higly customizable and powerful recording tool which is free and open source. You can find their repo on GitHub.
 
 -cb

@@ -6,7 +6,7 @@ To the ER staff where EMS dropped me off,
 
 And to the 'Unit for Observation' staff who helped me recover,
 
-Including but not limted to the Chaplain, all the Doctors and Nurses -
+Including but not limted to the Chaplain, all the Doctors and Nurses, and anyone involved in my care -
 
 That was a long couple of days!!!
 
@@ -17,10 +17,10 @@ I have a disease of the mind. You have put my mind at ease. At no point was I cl
 The mind is powerful.
 
 It can generate intense happiness, fear, hope, sadness, confusion, hatred, and love.
+
 Unfortunately, we do not always have full control over our minds or how it responds to certain stimuli.
 
-If we could work on our minds, and massage them to respond more positively,
-we may be able to overcome some of our present issues.
+If we could work on our minds, and massage them to respond more positively, we may be able to overcome some of our present issues.
 
 If we can choose to laugh, when instead we should cry.
 

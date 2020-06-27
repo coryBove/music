@@ -8,20 +8,22 @@
 
 I'm going to be taking some time off work to pursue some hobbies, mainly music and art.
 
-This repo is starting with a lot of writing, and not a lot of music. Today is day 1 of this project, and I'm laying a lot of groundwork before I start practicing for real.
-
 If you're really only interested in the music (WHICH IS TOTALLY COOL!!!!) then give the video below a quick watch, and/or check out my [Influences](randomIdeas/INFLUENCES.md)
 
 I've been a professional software engineer since about 2016, and have been very fortunate to save up a small nest-egg in order to do this. This is a planned sabbatical, and I left my last job June 18th of 2020. 
 
 See my [History](randomIdeas/HISTORY.md) for more about me.
 
-See a (hopefully) growing list of [Songs](lyrics/README.md) here.
+See a growing list of [Songs](lyrics/README.md) here.
 
-See a (hopefully) growing list of [randomIdeas](randomIdeas/README.md) here.
+See a growing list of [Ideas](randomIdeas/README.md) here.
 
-Here's a short(4m) song I recorded last weekend (6/14/2020):
-I need to work on my vocals, but please bare with me, it gets slightly better towards the end.
+See a growing list of [Practice Sessions](practice/README.md) here.
+
+Please, see [Angels](ANGELS.md) for a tribute to first responders and healthcare workers.
+
+Here's a short(4m) song I recorded recently (6/14/2020):
+I need a lot of work on my vocals, but please bare with me, it gets slightly better towards the end.
 
 https://drive.google.com/file/d/1Za2UmjwJQvFPLPXLpCL6appcKQlArB12/view?usp=sharing
 
@@ -44,7 +46,6 @@ If you are interested in supporting this project at all, PLEASE share this link 
 
 Throughtout the next few months, I will do my best to stay open to PRs and suggestions, but this will mostly be a self-driven project.
 
-See [Contributing](CONTRIBUTING.md) for more on this.
-
+See [Contributing](CONTRIBUTING.md) / [Collaboration](COLLABORATION.md) for more on this.
 
 -cb
