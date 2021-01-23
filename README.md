@@ -22,7 +22,7 @@ See a growing list of [Practice Sessions](practice/README.md) here.
 
 Please, see [Angels](ANGELS.md) for a tribute to first responders and healthcare workers.
 
-Here's a short(4m) song I recorded recently (6/14/2020):
+Here's a short(4m) song I recorded recently (6/14/2020): (Also now on YouTube! Look up corybove!)
 I need a lot of work on my vocals, but please bare with me, it gets slightly better towards the end.
 
 https://drive.google.com/file/d/1Za2UmjwJQvFPLPXLpCL6appcKQlArB12/view?usp=sharing
